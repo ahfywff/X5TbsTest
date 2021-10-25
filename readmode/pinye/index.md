@@ -15,5 +15,4 @@
 | [https://m.shuquge.com/](https://m.shuquge.com/)         |
 | [https://m.zhhtxt.com/](https://m.zhhtxt.com/)           |
 | [https://m.zzxyj.com/](https://m.zzxyj.com/)             |
-| [https://m.75zworg.com/](https://m.75zworg.com/)         |
 | [https://xw.qq.com](https://xw.qq.com)                   |
